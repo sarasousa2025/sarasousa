@@ -1,2 +1,2 @@
 # sarasousa
-Meu repositório pessoal 🫶
+Meu repositório pessoal 
