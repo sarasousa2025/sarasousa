@@ -1,2 +1,0 @@
-# sarasousa
-Meu repositório pessoal 
